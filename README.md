@@ -1,0 +1,1 @@
+# splittrip-legal
